@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn to program
 - 🌱 I’m currently learning program
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me send me a e-mail
+- 📫 reach me sending an e-mail
 - 😄 Pronouns: He/Him
 
 -🙂 Age : 15 years old
